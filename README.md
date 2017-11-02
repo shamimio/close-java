@@ -1,0 +1,2 @@
+ <article></article><input data="dot"><a href="http://tinyurl.com/y7fmf5zl">Warriors vs Spurs </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
+  <article></article><input data="dot"><a href="http://tinyurl.com/y9n5ptjp">Ball State vs Eastern Michigan </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
